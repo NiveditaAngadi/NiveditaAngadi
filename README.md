@@ -24,8 +24,10 @@ publishing grocerry coupons, media promotions of CPG's, brands both in-store as 
 I worked for iOS app, which involves the developement of an app from scratch. 
 
 Role involves the feature development, maintains, ADA, security fixes in the app as well as mentoring the team members.
-
 Other roles involved the hiring of team members. 
+
+Looking forward to work for great product ideas which involves latest technology and work with great teams who are empathetic, knowledgeable. 
+
 
 
 
