@@ -9,7 +9,7 @@ I am an experienced iOS developer over 12+ years hands on experience from concep
 
 In this tenure I worked on the various domains of applications such as retail, consumer, IoT, Telecommunications, SDK developement for OTT, Workforce management, e-commerce, News, educational and learning app, health care. 
 
-Applications are for appstore as well as exterprise. 
+Applications are for appstore as well as enterprise. 
 
 Worked with both product as well as service based companies. 
 
